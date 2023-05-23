@@ -4,3 +4,4 @@ repository untuk meyimpan rencana rafi kedepanya
 -mahir dalam bhs asing
 -membuat bisnis degan baik dan benar 
 -menghasilkan duit dari logo
+-berjuang sampe darah penghabisan
