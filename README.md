@@ -5,3 +5,4 @@ repository untuk meyimpan rencana rafi kedepanya
 -membuat bisnis degan baik dan benar 
 -menghasilkan duit dari logo
 -berjuang sampe darah penghabisan
+-menjadi terbaik ke depanya
